@@ -1,3 +1,3 @@
 # theChess
-fuck
+fuc
 hey man
