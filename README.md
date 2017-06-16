@@ -1,4 +1,4 @@
 # theChess
-LL
-facha
-LOOOLOOO
+bb
+ccc
+ddd
